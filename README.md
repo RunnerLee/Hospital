@@ -378,7 +378,35 @@
 
 - 广州华美美莱整形医院
 - 广州现代医院
+  - 电话 +86 20 2222 1111
+  - 网址 22221111.com
+  - 网址 gzxdyy.com
+  - 网址 asiancancer.com
+  - 网址 pynkxw.com
 - 广州长安医院
+  - 电话 +86 20 2222 2222
+  - 网址 02022222222.com
+  - 网址 02022222222.net
+  - 网址 yunyu120.com
+  - 网址 hope120.com
+  - 网址 hope120.net
+  - 网址 y020.net
+  - 网址 bbyjc.com
+  - 网址 bplzl.com
+  - 网址 gdnxbu.com
+  - 网址 jzjcc.com
+  - 网址 slgzy.com
+  - 网址 sujcc.com
+  - 网址 ca120.com
+  - 网址 y020.cn
+  - 网址 yunyu120.cn
+  - 网址 02022222222nk.com
+  - 网址 020nanke.net
+  - 网址 slgft.com
+  - 网址 020nanke.cn
+  - 网址 gdnxby.com
+  - 网址 hope120.com.cn
+  - 网址 yunyu120.com.cn
 - 广州益寿医院
 - 广州利德医院
 - 番禺东方俪人医院
